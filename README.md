@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/xans-me/](https://github.com/xans-me/)
 
-- 📫 How to reach me **mulia.ichsan@brilian.bri.co.id**
+- 📫 How to reach me 
 
 - ⚡ Fun fact **Logic behind everything and I am the Ice Breaker**
 
